@@ -1,5 +1,5 @@
 # 💫 About Me:
-Développeur  desktop and mobile, Web 
+Développeur web à Lubumbashi et Chercheur en IA
 
 
 ## 🌐 Socials:
